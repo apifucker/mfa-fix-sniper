@@ -1,1 +1,3 @@
 # mfa-fix-sniper
+
+MADE BY RUSH X DUCKEVİLS X ZONS FIXLEYIN KULLANIN
